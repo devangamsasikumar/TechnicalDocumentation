@@ -1,16 +1,16 @@
-# Harideep K
-##### +91 8886520096
-##### harideep028@gmail.com
+# D Sasi Kumar
+##### +91 8466835087
+##### dsashi94@gmail.com
 
 ### Career Objective:
-Seeking a **challenging** *Job* to further enhance my skill set. 
+Seeking a **challenging** *Job* to further enhance my skill set.
 
 ### Educational Qualification
 
 Degree | Duration
 ---|---
 B.Tech | 4
-Inter | 2 
+Inter | 2
 SSC | 10
 
 
